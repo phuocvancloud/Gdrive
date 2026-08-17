@@ -17,3 +17,5 @@ https://torrentgalaxy.one/
 https://torrentgalaxy.info/
 
 https://torrentgalaxy.hair/
+
+https://www.torrentdownloads.pro/
